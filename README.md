@@ -5,4 +5,10 @@ Learning to use version control system as a part of bangkit
 ajdnakdad
 awdjawdkhawda
 aanwfjabf
+
+
+
 aejfnajebf
+
+
+pakai kata-kata jak
